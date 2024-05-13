@@ -11,7 +11,7 @@ I'm excited to delve deeper into  responsive Website development, as well as Web
 
 ## Get in Touch
 
-If you share similar interests or have any questions, feel free to reach out! You can connect with me on WhatsApp at +2349165801489, or send me an email at olamilekanogunubade3@gmail.com
+If you share similar interests or have any questions, feel free to reach out! You can connect with me on WhatsApp at +2349165801489, or send me an email at olamilekanogunbade3@gmail.com
 
 Looking forward to connecting with you!
 
