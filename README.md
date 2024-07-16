@@ -1,6 +1,6 @@
 # Hi there! 👋
 
-I'm Olamilekan Ogunbade (LekinsTechy)😄, a front-end developer based in Nigeria. Welcome to my GitHub profile!
+I'm Olamilekan Ogunbade (LekinsTechy), a front-end Engineer. Welcome to my GitHub profile!
 
 ## About Me
 
